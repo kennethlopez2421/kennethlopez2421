@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kennethlopez2421
-- 👀 I’m interested in ...
+- 👀 I’m interested to learn new skill
 - 🌱 I’m currently learning ...
 - 📫 How to reach me ... kenlopez743@gmail.com
 
